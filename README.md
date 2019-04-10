@@ -9,7 +9,7 @@ leemcpeters92
 gc-westover
 DRWashock
 ameliacoding
-snowbigdeal 
+snowbigdeal
 vyaskruti89
 hyungrymonster
 MeganC22
@@ -18,5 +18,5 @@ allyjshivka
 amandamschermerhorn
 jp6882
 powerism
-cydelle
+cydelle pronounced sigh-dell
 Mari-J
