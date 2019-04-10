@@ -18,5 +18,5 @@ allyjshivka
 amandamschermerhorn likes peanut butter and jelly.
 jp6882
 powerism
-cydelle
+cydelle pronounced sigh-dell
 Mari-J
