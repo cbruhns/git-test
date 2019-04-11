@@ -9,14 +9,14 @@ leemcpeters92
 gc-westover comes from a land down under.
 DRWashock
 ameliacoding
-snowbigdeal
+snowbigdeal codes like no one is watching
 vyaskruti89
 [hyungrymonster is hungry]
-MeganC22
+MeganC22 Collischonn
 AMan34598
 allyjshivka
-amandamschermerhorn
+amandamschermerhorn likes peanut butter and jelly.
 jp6882
 powerism
-cydelle
+cydelle pronounced sigh-dell
 Mari-J
